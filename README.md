@@ -6,4 +6,5 @@ Estudiante de 1er año de Ingeniería en computación :computer: y jugador de ba
 
 #### Un poquito de mí:
 Creo fervientemente que la mejor estación es el :fallen_leaf: Otoño :fallen_leaf:
+
 Así como la indiscutible superioridad del mate amargo :mate:
