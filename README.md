@@ -10,4 +10,4 @@ Creo fervientemente que la mejor estación es el :fallen_leaf: Otoño :fallen_le
 Así como la indiscutible superioridad del mate amargo :mate:
 
 
-[Gracias por leer](https://64.media.tumblr.com/a72a6c1904de1cc30885651470e95da5/eb3b121c17e5263a-ab/s1280x1920/f42559dd34eb254dfe7b13a075a2108d5ac297bb.png)
+![Gracias por leer](https://64.media.tumblr.com/a72a6c1904de1cc30885651470e95da5/eb3b121c17e5263a-ab/s1280x1920/f42559dd34eb254dfe7b13a075a2108d5ac297bb.png)
