@@ -1,5 +1,5 @@
 # Hola!!
-## :point_right: Soy Tomás Fioroni :point_left:
+## :sparkles: Soy Tomás Fioroni :sparkles:
 Estudiante de 1er año de Ingeniería en computación :computer: y jugador de basket categoría u19 :basketball:.
 
 #### Actualmente me encuentro realizando un máster online en __[EH Academy](https://academy.ehacking.net)__ sobre ciberseguridad y hacking ético
